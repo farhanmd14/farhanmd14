@@ -2,11 +2,11 @@
 ##### Hi there ✌ 
 ##### I'm Mohd Farhan 
 ##### 🍰02'March 
-##### 🏫New Horizon 
+##### 🏫New Horizon School
 ##### 🏫Completed my Bachelor (CGPA 8.9);Class'20 
 ##### 🏫Pursing Masters in Computer Application
-##### 💬 Askme About.....
+##### 💬 Ask me About.....
 
 ## Most Important 
-##### Alwas Learn and Help.❤😊✌
+##### Always Learn and Help.❤😊✌
 
