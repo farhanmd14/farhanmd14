@@ -5,3 +5,8 @@
 ### 🏫New Horizon 
 ### 🏫Completed my Bachelor (CGPA 8.9);Class'20 
 ### 🏫Pursing Masters in Computer
+### 💬 Askme About.....
+
+# Most Important 
+## Alwas Learn and Help.
+
